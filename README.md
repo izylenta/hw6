@@ -13,6 +13,9 @@
 ![screen shot 2018-04-09 at 10 43 53 pm](https://user-images.githubusercontent.com/35367037/38519363-48fb339c-3c48-11e8-89c6-1f277074f8d4.jpeg)
 
 В принципе, оба слова могут быть использованы с "people" --> to ask/question people. 
+
 Однако можно использовать только "ask" вместе с "questions" --> to ask questions. 
+
 А так же только "question" используется с "merit" --> to question merit. 
+
 ![screen shot 2018-04-09 at 10 47 03 pm](https://user-images.githubusercontent.com/35367037/38519365-4afa2d74-3c48-11e8-8ea2-3b562d29bc44.jpeg)
